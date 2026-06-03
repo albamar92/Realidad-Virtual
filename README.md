@@ -7,6 +7,9 @@ Los archivos pueden descargarse desde el enlace https://drive.google.com/drive/u
 A continuación se comparten enlaces de experiencias de uso del entorno:
 
 – Inicio del entorno: https://youtu.be/NlkbRkZNe3E
+
 – Ingreso en la Granja Virtual: https://youtu.be/kBov3M1qNeA
+
 – Ingreso en la Ciudad Virtual: https://youtu.be/t4CF2uMHFxs
+
 – Ingreso en la Isla Virtual: https://youtu.be/WFrp0otZw9
