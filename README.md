@@ -4,7 +4,7 @@ Este trabajo es un entorno inmersivo orientado al estímulo del desarrollo infan
 
 Los archivos pueden descargarse desde el enlace https://drive.google.com/drive/u/4/folders/1rgBRj-L2Vty3inIgfXJXv-eGXNnvZFd1 tanto para la versión completa como para la simplificada.
 
-A continuación se comparten enlaces de experiencias de uso del entorno: \\
+A continuación se comparten enlaces de experiencias de uso del entorno: \n
 – Inicio del entorno: https://youtu.be/NlkbRkZNe3E
 – Ingreso en la Granja Virtual: https://youtu.be/kBov3M1qNeA
 – Ingreso en la Ciudad Virtual: https://youtu.be/t4CF2uMHFxs
